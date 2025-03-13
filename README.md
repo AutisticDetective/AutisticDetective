@@ -8,7 +8,7 @@
 a detco tiktok edit that might be angst idk... but its my fav one
 oh and flash warning at the end
 
-https://github.com/user-attachments/assets/b85b4cf7-7d38-4169-9e01-8d850de487f7
+https://github.com/user-attachments/assets/e6a9bc21-a622-483d-bf8a-03c60c1b22c6
 
 </div>
 
