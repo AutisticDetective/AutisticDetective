@@ -1,7 +1,13 @@
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/3de62af0-49f2-4575-9514-4768bb86e1e5" width="45%" />
+<div align="center">
 
+ "Only one truth is revealed!"
+-
   
- [atabook!](https://redacted.atabook.org/) ~ [strawpage!!](https://redacted-code-208.straw.page)
-  
-</p>
+   [atabook!](https://redacted.atabook.org/) ~ [strawpage!!](https://redacted-code-208.straw.page)
+
+a detco tiktok edit that might be angst idk... but its my fav one
+
+https://github.com/user-attachments/assets/b85b4cf7-7d38-4169-9e01-8d850de487f7
+
+</div>
+
