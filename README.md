@@ -2,6 +2,7 @@
 
  "Only one truth is revealed!"
 -
+![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=Witnesses)
   
    [atabook!](https://redacted.atabook.org/) ~ [strawpage!!](https://redacted-code-208.straw.page)
 
