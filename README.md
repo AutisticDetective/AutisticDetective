@@ -4,7 +4,7 @@
 -
 ![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=Witnesses)
   
-   [atabook!](https://redacted.atabook.org/) ~ [strawpage!!](https://redacted-code-208.straw.page) ~ [Rentry!](https://rentry.co/autisticdetco) <- made by my Husband
+   [atabook!](https://redacted.atabook.org/) ~ [strawpage!!](https://redacted-code-208.straw.page) ~ [Rentry!](https://rentry.co/autisticdetco) <- the rentry was made by my Husband
 
 a detco tiktok edit that might be angst idk... but its my fav one and flash warning at the end.
 
